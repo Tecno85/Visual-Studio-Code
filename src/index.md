@@ -1,0 +1,4 @@
+su texto es la unidad superior de comunicación y de la competencia organizacional del
+hablante. Su extensión es variable y corresponde a un todo comprensible que tiene una 
+finalidad comunicativa en un contexto dado. su carácter comunicativo, pragmático y 
+estructural permiten su identificación.
